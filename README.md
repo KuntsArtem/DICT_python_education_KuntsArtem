@@ -1,1 +1,1 @@
-# DICT_python_education_KuntsArtem
+# Kunts Artem 518st
